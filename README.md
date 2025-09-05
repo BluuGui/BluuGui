@@ -1,5 +1,3 @@
-![1000035366](https://github.com/user-attachments/assets/2952a5aa-7a94-4ad9-906a-933e7f1608bf)
-
 <img width="720" height="489" alt="1000035955" src="https://github.com/user-attachments/assets/346b9d10-1eb8-49a6-b73a-c8a3e5762956" />
 
 Haii!!![1000035352](https://github.com/user-attachments/assets/a6dd630e-89b5-4572-a675-20fe7abc7d1f)
@@ -22,21 +20,3 @@ OO4; Mappride , pedos
 OO5; people who wants small lasting friendship from me.![1000035349](https://github.com/user-attachments/assets/12699514-1f05-473f-9899-f237e9e1483a)
 
 thats all for now!!
-
-![1000035365](https://github.com/user-attachments/assets/c12c0266-bf91-47dc-a790-520d989c57da)
-
-
-<!--
-**BluuGui/BluuGui** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
